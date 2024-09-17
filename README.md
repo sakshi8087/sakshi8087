@@ -1,4 +1,4 @@
-🚀 Frontend Developer | React Enthusiast | Data Analysis Aficionado 💻
+🚀 Data Analytics | Python Enthusiast | Data Analysis Aficionado 💻
 
 ✨ Turning data insights and ideas into pixel-perfect web experiences. Passionate about creating clean, responsive, and user-friendly interfaces, with a strong focus on data-driven decision-making.
 
